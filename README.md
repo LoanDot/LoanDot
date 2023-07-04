@@ -1,2 +1,2 @@
-Game Dev and YouTube guy\n
+Game Dev and YouTube guy/n
 You can probably find me on Twitter, YouTube, and Twitch under the same name.
